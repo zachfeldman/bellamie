@@ -1,3 +1,3 @@
-# tequila.cat
+# bellamie.dog
 
-A place for Tiks
+A place for Bells
